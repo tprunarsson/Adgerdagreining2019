@@ -1,0 +1,1 @@
+# Aðgerðagreining 2019 
